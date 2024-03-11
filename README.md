@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **ygarg_blas22@thapar.edu**
 
-- ⚡ Fun fact **into astrology and spirituality**
+- ⚡ Fun fact **i'm into astrology and spirituality**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
