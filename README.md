@@ -4,13 +4,13 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=yashika-06&label=Profile%20views&color=0e75b6&style=flat" alt="yashika-06" /> </p>
 
-- 🔭 I’m currently working on **Heart: A second brain**
+- 🔭 I’m currently working on **Effects of Hallucinogens on Self-Identity**
 
-- 🌱 I’m currently learning **Python, Adobe Illustrator, Adobe Photoshop**
+- 🌱 I’m currently learning **Python, Adobe Illustrator**
 
 - 📫 How to reach me **ygarg_blas22@thapar.edu**
 
-- ⚡ Fun fact **i'm into astrology and spirituality**
+- ⚡ Fun fact **i'm currently pursuing Psycholohy Honors and Cognitive Science Minor**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
